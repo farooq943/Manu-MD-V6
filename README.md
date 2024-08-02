@@ -2,7 +2,7 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <h1 align="center">ꪶ✨𝗠𝗮𝗻𝘂𝗹 𝗢𝗳𝗳𝗶𝗰𝗶𝗮𝗹 𝗪𝗵𝗮𝘁𝘀𝗔𝗽𝗽 𝗕𝗼𝘁 𝗩6❤️ꫂ<br></h1>
 <p align="center">
-<img src="https://telegra.ph/file/33e5f1bfd36ea02f8b062.jpg" />
+<img src="https://telegra.ph/file/c35530ddb2fec504ee5b1.jpg" />
 </p>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -53,7 +53,7 @@ Manul Official Bot Multi Device is a automated whatsapp bot created by <a href="
 ***✨Tap On Logo❤️***
 
 <p align="left">
-<a href="https://youtu.be/iCyDVxT5LRg?si=Cy6jpRpQ7ZEgj_2n"><img align="center" src="https://telegra.ph/file/33a9598b1a3a27f004287.jpg" alt="DEPLOY" height="110" width="200" /></a>
+<a href="https://youtu.be/iCyDVxT5LRg?si=Cy6jpRpQ7ZEgj_2n"><img align="center" src="https://telegra.ph/file/c35530ddb2fec504ee5b1.jpg" alt="DEPLOY" height="110" width="200" /></a>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
